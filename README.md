@@ -1,1 +1,1 @@
-Blog Portel by trident coders
+Blog Portal by trident coders
